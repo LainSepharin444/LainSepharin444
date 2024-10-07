@@ -1,0 +1,11 @@
+- I’m @LainSepharin444 (kira)
+- I'm h3r3 to show y0u the s3cr3t$
+- the government h!des from us
+- (if your a left w!ng get out)
+- If anybody would like to s3nd
+- me requested v!deos, speaches,
+- photos, with various pr00f to what
+- they are try!ng to share you can
+- contact me thr0ugh the 3mail
+- delaneyjean444@gmail.com
+- Y3$ ! am v3ry r!ght w!ng
